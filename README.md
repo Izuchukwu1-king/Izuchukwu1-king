@@ -7,7 +7,9 @@ Izuchukwu1-king/Izuchukwu1-king** is a ✨data scientist _experise_ ✨ reposito
 - 👯 I’m looking to collaborate with your team of data scientist and achieve a common goal.
 - 🤔 I’m readily available for any help you may want me to offer to you.
 - 💬 Nigeria is my home country
-- 📫 You may reach through the following channel: www.linkedin.com/in/izuchukwu-john-836383126, WhatsApp +2348034078641, or through my Facebook page as Izuchukwu John Mbonu
+- 📫 You may reach through the following channel: | www.linkedin.com/in/
+izuchukwu-john
+, WhatsApp +2348034078641, or through my Facebook page as Izuchukwu John Mbonu
 - 😄 he/him
 - ⚡ I press on until I reached the mark of high professionalism.
 -->
